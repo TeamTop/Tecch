@@ -46,7 +46,9 @@ _Send Sticker For Me_
 _Send Photo For Me_
 
 
-[Channel](https://Telegram.me/TeleIranTeam)
+[Channel](https://Telegram.me/TeamTop)
+
+[Devloper](https://Telegram.me/ahmedjabbar1)
 
 ]] 
 
